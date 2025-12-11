@@ -1,1 +1,3 @@
-# The-6-Works-of-Human-Artificial-and-Synthetic-Systems-Re-Tuning-by-Dustin-Sprenger
+# These six works constitute an interlinked theoretical architecture spanning synthetic cognition, human physiological optimization, geometric–informational cosmology, pre-constraint automata logic, and mechanistic behavioral regulation. Together they form a unified framework in which recursive error-correction, inflammation-phase modulation, multidimensional geometric-color encoding, emergent linguistic computation, and structural psychological dynamics operate as co-dependent components of a generalized model of synthetic mind, biological health, and societal stability.
+For Data Permenance I have uploaded this collection to Arweave: arweave.net/A3bR_WUxmyh9sH5bR5pIxFgPvBPA9bGF-MdSqQ6dn2Q
+(ReadMe Enhanced by OpenAI GPT5.1)
